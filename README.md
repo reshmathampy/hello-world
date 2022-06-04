@@ -10,4 +10,3 @@ Let's see how this goes aight! 😹
 ---
 ---
 p.s : (i had way too much fun with the cheatsheet lololol)
-also 13's unlucky isn't it? 🤔
